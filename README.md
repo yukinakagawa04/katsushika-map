@@ -1,1 +1,0 @@
-# katsushika-map
